@@ -1,0 +1,1 @@
+Test technique Key Consulting
